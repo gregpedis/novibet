@@ -1,6 +1,3 @@
-# Novibet_notes
-
-
 
 ---
 
